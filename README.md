@@ -10,11 +10,10 @@
   <details>
     <summary>DNI</summary>
     <br>
-    → Proshippers, pedos, phobes, misogyny, etc.<br>
+    → Pedos, phobes, misogynists, trauma dumpers, etc.<br>
     → Underaged shipping of any kind<br>
     → Narcopaths, Victim complexers<br>
     → Lolicons/Shoticons<br>
-    → Trauma dumpers<br>
     → EDTWT / SHTWT<br>
     → You support Donald Trump
   </details>
