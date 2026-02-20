@@ -1,17 +1,37 @@
 <div align="center">
 
 # -ˏˋ🖤💀 About Me 💀🖤ˊˎ-
-</div>
+
 
 <p align="center">This is a WIP.</p> 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=doobiies&label=Views%20&color=e51f1f&style=plastic" alt="doobiies" /> </p>
+<br>
+  
+  <details>
+    <summary>DNI</summary>
+    <br>
+    → Proshippers, pedos, phobes, misogyny, etc.<br>
+    → Underaged shipping of any kind<br>
+    → Narcopaths, Victim complexers<br>
+    → Lolicons/Shoticons<br>
+    → Trauma dumpers<br>
+    → EDTWT / SHTWT<br>
+    → You support Donald Trump
+  </details>
 
-
+<details>
+    <summary>BYI</summary>
+    <br>
+  I tend to switch back and forth between 18+ and Safe Server.<br>
+  I may say some outrageous things, but please take everything i say with a<br>
+  grain of salt and not close to heart. It's most likely all jokes.<br>
+  I am very friendly :)
+  </details>
 
 
 
 <!--
 **DoobiieS/DoobiieS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 -->
