@@ -2,7 +2,10 @@
 
 # -ˏˋ🖤💀 About Me 💀🖤ˊˎ-
 
+<img width="540" height="240" alt="image" src="https://github.com/user-attachments/assets/2ce79266-3bd9-4b5b-ba71-2a89b6053c2a" />
+<br>
 
+<br>
 <p align="center">This is a WIP.</p> 
 
 <br>
