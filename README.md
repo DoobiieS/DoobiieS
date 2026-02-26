@@ -6,7 +6,11 @@
 <br>
 
 <br>
-<p align="center">This is a WIP.</p> 
+<p align="center">Heyyo, i'm just a dude who's stoopid and spends his time
+creating stuff<br>all the time. I dabble in 3D modeling, drawing sometimes, and game design.<br>
+<br>I enjoy content creation. I <i>do</i> have other social medias, though due to how<br>
+much of a variety i have, i keep it hush. 😅<br>
+<br>━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━<br><br>This is still a WIP.</p> 
 
 <br>
   
@@ -35,5 +39,5 @@
 <!--
 **DoobiieS/DoobiieS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-
+❤︎
 -->
