@@ -19,6 +19,7 @@ much of a variety i have, i keep it hush. 😅<br>
     <br>
     → Pedos, phobes, misogynists, trauma dumpers, etc.<br>
     → Underaged shipping of any kind<br>
+    → "transage/transabled", genuinely get tf away from me.<br>
     → Narcopaths, Victim complexers<br>
     → Lolicons/Shoticons<br>
     → EDTWT / SHTWT<br>
